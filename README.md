@@ -1,1 +1,1 @@
-# nithin
+info tech
